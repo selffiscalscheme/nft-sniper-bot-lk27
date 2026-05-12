@@ -1,4 +1,4 @@
-# 
+# secure NFT Mint Bot for nft sniper bot | NFT-sniping & early-mint-access offers the most advanced nft sniper bot, with NFT-sniping and early-mint-access. Ideal for professional
 
 
 
